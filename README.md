@@ -1,6 +1,6 @@
 # STC-SPADES官网地址
 
-最新地址：[gardenparty.me](https://acx3.gardenparty.me/auth/register?code=HgI4)
+最新地址：[gardenparty.me](http://acids.stc-spare1.com/auth/register?code=Sn9u)
 
 ## 简介
 
